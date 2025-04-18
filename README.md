@@ -1,1 +1,1 @@
-# Sopida145-Study-With-Me-3D-Project
+# Study-With-Me-3D-Project
